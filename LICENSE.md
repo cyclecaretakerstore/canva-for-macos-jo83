@@ -1,4 +1,4 @@
-
+Enhance Affinity Photo for macOS with new Affinity Photo for macOS Action | auto-retouch + AI-assisted design, the #1 action. Includes auto-retouch and AI-assisted design for a
 
 
 
